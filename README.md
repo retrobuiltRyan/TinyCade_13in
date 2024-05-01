@@ -4,8 +4,7 @@ I lost count how many hours I put into the design, CAD, and building over six of
 I started teaching my self how to build arcades 10+ years ago. You can buy your memories, but making them is cheaper.
 Please use these plans to build your own and just play some games.
 
-Donations via paypal: ryan@retrobuiltgames.com
-Donations over $20 will get you the SolidWorks drawing pack.
+You can buy the full soldiworks CAD: https://www.etsy.com/listing/1465038262/13-crt-arcade-cabinet-plans-cad-package
 
 
 Ryan
